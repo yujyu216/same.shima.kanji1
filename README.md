@@ -1,0 +1,1 @@
+# same.shima.kanji1
